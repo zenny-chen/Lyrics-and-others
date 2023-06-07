@@ -26,6 +26,21 @@ http://en.savefrom.net
 - [Only my railgun](http://www.kasi-time.com/item-45162.html)
 - [Blood Pupils in the Wind - Translated Lyrics](https://steamcommunity.com/app/537990/discussions/0/152391995423977290/)
 
+<br />
+
+## 日语输入法
+
+- ち（ti / chi）
+- ぢ（di）
+- つ（tu / tsu）
+- づ（du）
+- ゐ、ヰ（wyi）
+- ゑ、ヱ（wye）
+- ディ（dexi）
+- ヴィ（vi / vuxi）
+
+<br />
+
 卒業:そつぎょう
 
 白鳥:はくちょう
