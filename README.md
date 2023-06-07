@@ -25,6 +25,7 @@ http://en.savefrom.net
 - [eternal reality](http://www.kasi-time.com/item-68154.html)
 - [Only my railgun](http://www.kasi-time.com/item-45162.html)
 - [Blood Pupils in the Wind - Translated Lyrics](https://steamcommunity.com/app/537990/discussions/0/152391995423977290/)
+- [Fade Scars](https://steamcommunity.com/app/787850/discussions/0/3812906855241657725/)
 
 <br />
 
