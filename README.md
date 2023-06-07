@@ -24,6 +24,7 @@ http://en.savefrom.net
 - [Cagayake! GIRLS](http://www.kasi-time.com/item-41990.html)
 - [eternal reality](http://www.kasi-time.com/item-68154.html)
 - [Only my railgun](http://www.kasi-time.com/item-45162.html)
+- [Blood Pupils in the Wind - Translated Lyrics](https://steamcommunity.com/app/537990/discussions/0/152391995423977290/)
 
 卒業:そつぎょう
 
