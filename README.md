@@ -35,6 +35,7 @@ http://en.savefrom.net
 - ぢ（di）
 - つ（tu / tsu）
 - づ（du）
+- ゔ、ヴ（vu）
 - ゐ、ヰ（wyi）
 - ゑ、ヱ（wye）
 - ディ（dexi）
