@@ -45,6 +45,8 @@ http://en.savefrom.net
 
 <br />
 
+## 词条
+
 卒業:そつぎょう
 
 白鳥:はくちょう
@@ -397,11 +399,11 @@ http://en.savefrom.net
 
 雑魚:ざこ
 
-鹿目:かなめ
+[鹿目まどか](https://mzh.moegirl.org.cn/%E9%B9%BF%E7%9B%AE%E5%9C%86):かなめ まどか
 
 暁美:あけみ
 
-美樹:みき
+[美樹さやか](https://mzh.moegirl.org.cn/%E7%BE%8E%E6%A0%91%E6%B2%99%E8%80%B6%E9%A6%99):みき さやか
 
 巴:ともえ
 
@@ -411,7 +413,7 @@ http://en.savefrom.net
 
 弐（の）
 
-錦木千束：にしきぎ　ちさと
+[錦木千束](https://mzh.moegirl.org.cn/%E9%94%A6%E6%9C%A8%E5%8D%83%E6%9D%9F)：にしきぎ　ちさと —— 
 
 井上滝奈：いのうえ たきな
 
